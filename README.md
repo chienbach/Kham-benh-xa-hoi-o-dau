@@ -28,7 +28,7 @@ Bạn đang muốn tìm một địa chỉ khám nam khoa uy tín, chất lượ
 </div>
 <blockquote>
 	<p>
-		Dựa vào những tiêu chí kể trên,&nbsp;<a href="http://khamnamkhoa.xyz/gioi-thieu/">phòng khám nam khoa Thái Hà</a>&nbsp;là một trong số ít những cơ sở y tế đáp ứng được đầy đủ các tiêu chí trên.</p>
+		Dựa vào những tiêu chí kể trên,&nbsp;<a href="http://khamnamkhoa.xyz/gioi-thieu/">phòng khám đa khoa Thái Hà</a> là một trong số ít những cơ sở y tế đáp ứng được đầy đủ các tiêu chí trên.</p>
 </blockquote>
 <p>
 	&nbsp;</p>
